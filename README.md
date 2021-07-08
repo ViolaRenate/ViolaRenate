@@ -2,7 +2,7 @@
 - 🦋 I’m interested in (digital) art, semiotics, feminist history, bhakti + more ^_^   
 - 🐣 I’m currently learning HTML, CSS and JS.
 - 🙆🏻‍♀️ I’m looking to collaborate on ways how to present digital art online. 
-- 📍 Insta + Twitter @violarenate website: www.violarenate.com
+- 🌸 Creating room for the fluid spirits to bloom.
 
 <!---
 ViolaRenate/ViolaRenate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
